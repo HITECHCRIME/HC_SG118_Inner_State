@@ -16,16 +16,31 @@ Description.
 ## Lyrics
 
 ```
+
+spent years in inner states
+had always one command
+
+ensuring fallback to awake
+when circumstances called
+
+spent years in inner states
+had always one command
+
+ensuring fallback to awake
+when circumstances called
+
 spent years in inner states
 had always one command
 ensuring fallback to awake
 when circumstances called
 
 best perceived years of the past
-were wasted on fool's errands, true but
+were wasted on fool's errands, true 
+but
 procuring worlds only for them to die
-in self-doubts got me nulled and aphatic alight
+in self-doubts got me nulled and aphatic alight (aligned)
 too many pathways in my mind alight
+
 turned my form inside to an old soul (die)
 let me tell you despite your humble tries 
 this ain't as easy as this flow, not your fault
