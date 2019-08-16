@@ -16,7 +16,30 @@ Description.
 ## Lyrics
 
 ```
+spent years in inner states
+had always one command
+ensuring fallback to awake
+when circumstances called
 
+best perceived years of the past
+were wasted on fool's errands, true but
+procuring worlds only for them to die
+in self-doubts got me nulled and aphatic alight
+too many pathways in my mind alight
+turned my form inside to an old soul (die)
+let me tell you despite your humble tries 
+this ain't as easy as this flow, not your fault
+most scenarios will crumble and fold
+moment arrives, i catch a glimpse,
+causes undefined but you'll feel like newly born child 
+every single time an idea comes up
+spike
+
+all this for one of several purposes yah
+testing, selection, behavioural capacity
+what festering definition of will
+
+hold
 
 ```
 
