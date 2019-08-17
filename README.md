@@ -41,6 +41,8 @@ procuring worlds only for them to die
 in self-doubts got me nulled and aphatic alight (aligned)
 too many pathways in my mind alight
 
+TOO MANY pathways in my mind alight (change the noncaps)
+
 turned my form inside to an old soul (die)
 let me tell you despite your humble tries 
 this ain't as easy as this flow, not your fault
