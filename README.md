@@ -66,13 +66,15 @@ don't think so
 splashing bold no?
 
 growth like cold so creepin' 
-breaking the last law of
+breaking the law last of
 my tastes kept in safes 
 and KEYMASTER'S WEEPING'
-the holes don't fit
 
-i so got you tripping
+holes don't fit in the cypher
+of all the things i must've got you tripping
 on facts that no longer exist
+
+
 
 
 mind holes in mold shut down
