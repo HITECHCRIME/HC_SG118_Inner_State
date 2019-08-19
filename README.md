@@ -16,8 +16,10 @@ Description.
 ## Lyrics
 
 ```
+aye aye
+
 spent years in inner states
-had always one command
+had always one command - cia aaa
 
 ensuring fallback to awake
 when circumstances called
@@ -28,22 +30,29 @@ had always one command
 ensuring fallback to awake
 when circumstances called
 
-spent years in inner states
-had always one command
-ensuring fallback to awake
-when circumstances called
+spent YEARS in inner STATES
+had always one comMAND
+ensuring FALLback to awake
+when circumstances CALLed
+execute
 
 best perceived years of the past
 were wasted on fool's errands crew
 pro-curing worlds only for them to die
-in self-doubts got me nulled and aphatic aligned
-too many pathways in my mind alight
+in self-doubts got me nulled and aphaty aligned
+too many pathways in my mind alight yeah
 
-TOO MANY pathways in my mind alight yeah (change the noncaps)
+TOO MANY pathways in my mind alight yeah
+TOO MANY TIMES EVADED DAY FOR NIGHT
+SOLEMNLY DEFINED MY OWN RIGHTS
 
-turned my form inside to an old soul (die)
-let me tell you despite your humble tries 
-this ain't as easy as this flow, not your fault
+inner states against outer space
+
+turned into true form inside to an old soul
+cons(die)
+let me tell you despite your humble tries
+this ain't as easy as this flow aye,
+not your fault
 most scenarios will crumble and fold
 moment arrives, i catch a glimpse,
 causes undefined but you'll feel like newly born child 
