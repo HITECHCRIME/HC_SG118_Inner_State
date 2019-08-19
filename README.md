@@ -46,7 +46,7 @@ TOO MANY pathways in my mind alight
 THEM DIRE TIMES EVADED DAY FOR NIGHT
 SOLEMNLY DEFINED MY OWN RIGHTS
 
-inner states against outer space
+inner states against outer space lies
 
 turned into true form inside to an old soul
 cons(die)
