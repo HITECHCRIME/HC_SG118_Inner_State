@@ -16,7 +16,6 @@ Description.
 ## Lyrics
 
 ```
-
 spent years in inner states
 had always one command
 
