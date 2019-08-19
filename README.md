@@ -66,12 +66,13 @@ don't think so
 splashing bold no?
 
 growth like cold so creepin' 
-breaking the law last of
-my tastes kept in safes 
-and KEYMASTER'S WEEPING'
+breaking the last law of
+tastes, stakes kept in safes 
+KEYMASTER'S WEEPING'
 
 holes don't fit in the cypher
-of all the things i must've got you tripping
+of all the things 
+i must've got you tripping
 on facts that no longer exist
 
 
