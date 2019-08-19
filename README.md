@@ -42,19 +42,20 @@ pro-curing worlds only for them to die
 in self-doubts got me nulled and aphaty aligned
 too many pathways in my mind alight yeah
 
+x
+so i'm seeing light
+
 TOO MANY pathways in my mind alight
 THEM DIRE TIMES EVADED DAY FOR NIGHT
-SOLEMNLY DEFINED MY OWN RIGHTS
+SOLEMNLY DECLINED MY OWN RIGHTS
+inner states ever against meat space lies
 
-inner states against outer space lies
-
-turned into true form inside to an old soul
-cons(die)
-let me tell you despite your humble tries
-this ain't as easy as this flow aye,
+turned into a true form inside to an old soul
+i dieeed let me tell your humble tries
 not your fault
-most scenarios will crumble and fold
+this ain't as easy as this flow 
 moment arrives, i catch a glimpse,
+most scenarios will crumble and fold
 causes undefined but you'll feel like newly born child 
 every single time an idea comes up
 spike
