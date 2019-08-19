@@ -42,8 +42,8 @@ pro-curing worlds only for them to die
 in self-doubts got me nulled and aphaty aligned
 too many pathways in my mind alight yeah
 
-TOO MANY pathways in my mind alight yeah
-TOO MANY TIMES EVADED DAY FOR NIGHT
+TOO MANY pathways in my mind alight
+THEM DIRE TIMES EVADED DAY FOR NIGHT
 SOLEMNLY DEFINED MY OWN RIGHTS
 
 inner states against outer space
