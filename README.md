@@ -66,7 +66,7 @@ don't think so
 splashing bold no?
 
 growth like cold so creepin' 
-breaking last of
+breaking the last law of
 my tastes kept in safes 
 and KEYMASTER'S WEEPING'
 the holes don't fit
