@@ -35,10 +35,10 @@ ensuring fallback to awake
 when circumstances called
 
 best perceived years of the past
-were wasted on fool's errands, true 
-but
-procuring worlds only for them to die
-in self-doubts got me nulled and aphatic alight (aligned)
+were wasted on fool's errands blood
+but pro-
+curing worlds only for them to die
+in self-doubts got me nulled and aphatic aligned
 too many pathways in my mind alight
 
 TOO MANY pathways in my mind alight (change the noncaps)
