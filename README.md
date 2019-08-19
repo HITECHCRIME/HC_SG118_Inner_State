@@ -67,8 +67,9 @@ splashing bold no?
 
 growth like cold so creepin' 
 breaking the last law of
-tastes, stakes kept in safes 
+tastes, kept in safes 
 KEYMASTER'S WEEPING'
+?stakess
 
 holes don't fit in the cypher
 of all the things 
