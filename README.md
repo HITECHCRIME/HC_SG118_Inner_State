@@ -51,9 +51,9 @@ SOLEMNLY DECLINED MY OWN RIGHTS
 inner states never scratches against meat space lies
 
 turned into a true form inside to an old soul
-i dieeed let me tell your humble tries
+i dieeed let me tell your humble tries then go
 not your fault
-this ain't as easy as this flow 
+this ain't as easy as a thought flow 
 moment arrives, i catch a glimpse,
 most scenarios will crumble and fold
 causes undefined but you'll feel like newly born child 
