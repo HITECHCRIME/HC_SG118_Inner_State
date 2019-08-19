@@ -47,8 +47,8 @@ so i'm seeing light
 
 TOO MANY pathways in my mind alight
 THEM DIRE TIMES EVADED DAY FOR NIGHT
-SOLEMNLY DECLINED MY OWN RIGHTS
-inner states never scratches against meat space lies
+SOLEMNLY DECLINED (DEFINED) MY OWN RIGHTS
+in the inner states never scratches against meat space lies
 
 turned into a true form inside to an old soul
 i dieeed let me tell your humble tries then go
@@ -57,7 +57,16 @@ this ain't as easy as a thought flow
 moment arrives, i catch a glimpse (to unfold)
 most scenarios will crumble and fold
 causes undefined but you'll feel like wanted to unfold
+
 stories told
+folding does
+don't think so
+
+splashing bold
+growth like cold so creepin'
+my tastes are kept in safes
+and keymaster's weepin'
+
 
 
 newly born child 
