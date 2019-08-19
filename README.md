@@ -48,7 +48,8 @@ so i'm seeing light
 TOO MANY pathways in my mind alight
 THEM DIRE TIMES EVADED DAY FOR NIGHT
 SOLEMNLY DECLINED (DEFINED) MY OWN RIGHTS
-in the inner states never scratches against meat space lies
+in the inner states never scratches against meat space lies derived
+neverd derived anything from meat space lies
 
 turned into a true form inside to an old soul
 i dieeed let me tell your humble tries then go
@@ -62,10 +63,20 @@ stories told
 folding does
 don't think so
 
-splashing bold
-growth like cold so creepin'
-my tastes are kept in safes
-and keymaster's weepin'
+splashing bold no?
+
+growth like cold so creepin' 
+breaking last of
+my tastes kept in safes 
+and KEYMASTER'S WEEPING'
+the holes don't fit
+
+i so got you tripping
+on facts that no longer exist
+
+
+mind holes in mold shut down
+
 
 
 
