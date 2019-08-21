@@ -50,7 +50,7 @@ THEM DIRE TIMES EVADED DAY FOR NIGHT
 SOLEMNLY DECLINED (DEFINED) MY OWN RIGHTS
 in the inner states never scratches against meat space lies derived
 neverd derived anything from meat space lies
-
+ 
 turned into a true form inside to an old soul
 i dieeed let me tell your humble tries then go
 not your fault
